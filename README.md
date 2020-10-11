@@ -1,1 +1,1 @@
-# lhpndquiz
+# For non-commercial use only
